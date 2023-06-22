@@ -1,1 +1,1 @@
-# thu_Details_of_Management_Information_B_Lesson12
+# 経営情報各論BⅠ 第11回講義資料
